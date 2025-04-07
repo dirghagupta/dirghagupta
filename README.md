@@ -26,5 +26,5 @@ My best ideas usually come when I’m **debugging at midnight** or explaining ML
 ---
 
 📫 Let’s connect:  
-🔗 [LinkedIn](https://www.linkedin.com/in/dirghagupta)  
+🔗 [LinkedIn](https://www.linkedin.com/in/dirgha-gupta-7b0b90126/)  
 💼 Open to collabs, research, and cool AI projects!
